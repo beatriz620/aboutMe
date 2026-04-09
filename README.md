@@ -7,8 +7,5 @@ abaixo está pontos e observações sobre mim:
 - boa com trabalho em equipe
 - dedicada
 - focada
-- talvez um depentente de cafeína
 
-# Areas interessadas:
-<a href="https://github.com/035joaoneto/aboutMe/blob/main/AREAS.md">Arquivo md com as áreas</a>
 
