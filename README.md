@@ -7,5 +7,5 @@ abaixo está pontos e observações sobre mim:
 - boa com trabalho em equipe
 - dedicada
 - focada
-
+- organizada
 
